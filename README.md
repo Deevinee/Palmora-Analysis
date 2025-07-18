@@ -46,3 +46,8 @@ Insight: Again, Lagos shows higher compensation, supporting the idea of regional
 	•	Kaduna seems to have a strong female workforce—consider replicating that model in other regions.
 	•	Investigate cost-of-living adjustments and regional performance differences to guide equitable pay policies.
 
+
+
+
+
+
